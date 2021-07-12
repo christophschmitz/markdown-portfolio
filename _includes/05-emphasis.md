@@ -1,1 +1,1 @@
-**Autodidaktisch** und manchmal *etwas chaotisch*
+**Kreativ** und *analytisch*
