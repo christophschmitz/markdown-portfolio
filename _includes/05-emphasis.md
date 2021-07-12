@@ -1,1 +1,1 @@
-Autodidaktischer lerner
+**Autodidaktisch** und manchmal *etwas chaotisch*
